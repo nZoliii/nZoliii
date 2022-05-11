@@ -1,5 +1,5 @@
-✨Professional✨ Dumbass
-idk i will edit this later
+✨Professional✨ dumbass
+follow me on tiktok! @nzoliii
 
 <!---
 nZoliii/nZoliii is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
